@@ -33,7 +33,11 @@ So, let's get started! This recipe is prepared in two steps and requires the fol
 - Make sure you flip the fillets periodically, we don't want them to burn! 
 - About 5 minutes into cooking the fillets, dial down the heat to low, and add in the marinade + peri peri + maple syrup mixture!
 - Throw in the slices of lemon 🍋 The purpose of keeping the peel intact is for it to impart the unique taste of the peel to the sauce and the fish! 
-- Continue to cook until the fillets are thoroughly cooked!
+- Continue to cook until the fillets are thoroughly cooked! Towards the end, pour one tablespoon of teriyaki sauce on the fillet, and turn it over.
 
 #### Oops, there is a step 3... Let's eat! 😜
+
+The reason I differentiated the marinade and the cooking sauce was so that I could create a contrast of tastes within the salmon fillet. The reason I love salmon so much is because it is very good at being able to absorb the taste of the marinade. With rice wine and teriyaki sauce as the marinade, the taste will surely pack a punch!😋
+
+In addition to that, the cooking sauce had a sweet n' spicy texture to provide a contrast to the kick the rice wine packed. The result - salmon fillet that is sweet and spicy on the outside, but packs the punch of alcohol as you chew into its soft and mellow texture! 🤤
 
