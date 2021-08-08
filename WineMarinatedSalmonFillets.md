@@ -41,3 +41,7 @@ The reason I differentiated the marinade and the cooking sauce was so that I cou
 
 In addition to that, the cooking sauce had a sweet n' spicy texture to provide a contrast to the kick the rice wine packed. The result - salmon fillet that is sweet and spicy on the outside, but packs the punch of alcohol as you chew into its soft and mellow texture! 🤤
 
+![image](https://user-images.githubusercontent.com/40362692/128619887-609d8387-e2c7-42fa-b5ab-8a70ac9123b6.png)
+
+Yup, that's what it really looks like! Nope, you do not have to give me any credit 😁 (ok maybe a little would be nice)
+
