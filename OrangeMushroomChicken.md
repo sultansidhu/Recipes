@@ -25,10 +25,11 @@ Thus came the idea of using all the excess orange juice as a sauce! I just had t
 ##### The Main Dish
 1. Take a pan, and put in a teaspoon of ghee (or alternatives), and add in the garlic bulbs, finely chopped.
 2. Add in the chopped mushrooms and halved brussels sprouts! 🍄
-3. In a separate pan, put in 1 lb of Extra Lean Ground Chicken. 
-4. Cook the chicken thoroughly until brown, but not fully cooked! 🐓
-5. Then, once the chicken is brown, mix the contents of the two pans together, and add in the sauce.
-6. Keep the heat to low, and put a lid on the pan!
+3. Add in about half a tablespoon of black pepper, it will accentuate the spicy contrast to the semi-sweet sauce!
+4. In a separate pan, put in 1 lb of Extra Lean Ground Chicken. 
+5. Cook the chicken thoroughly until brown, but not fully cooked! 🐓
+6. Then, once the chicken is brown, mix the contents of the two pans together, and add in the sauce.
+7. Keep the heat to low, and put a lid on the pan!
 ##### And now, the longest step, the wait... 🥺 Turn the heat off after 5 minutes of cooking and frequent stirring (once per two minutes). Wait 5 more minutes to let the dish cool down... and enjoy! 😋
 This dish is very easy to make, and quite quick. It is the perfect balance of health and taste. It is also very high in protein, and low in fat, so perfect to include in your gym diet! Don't believe me? Check this out...
 
