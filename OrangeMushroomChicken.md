@@ -32,4 +32,6 @@ Thus came the idea of using all the excess orange juice as a sauce! I just had t
 ##### And now, the longest step, the wait... 🥺 Turn the heat off after 5 minutes of cooking and frequent stirring (once per two minutes). Wait 5 more minutes to let the dish cool down... and enjoy! 😋
 This dish is very easy to make, and quite quick. It is the perfect balance of health and taste. It is also very high in protein, and low in fat, so perfect to include in your gym diet! Don't believe me? Check this out...
 
+![image](https://user-images.githubusercontent.com/40362692/128799967-37227f3e-587e-433a-bb6d-657e8fe4ddcf.png)
+
 Yep, cheat meal looks and taste, but with gym meal macro ratios 😜
